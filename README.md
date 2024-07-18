@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AanikaAery1
+- 👀 I’m interested in finance and everything related to it.
+- 🌱 I’m currently learning financial analysis, investment strategies, and financial technologies.
+- 💞️ I’m looking to collaborate on projects related to financial modeling, fintech innovations, and market analysis.
+- 📫 How to reach me: aanika008@gmail.com
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I love hiking and have trekked to a Base Camp!
